@@ -1,2 +1,2 @@
 # Manikanta
-valli is an idiott
+valli is an idiot to me
